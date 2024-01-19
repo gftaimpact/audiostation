@@ -1,0 +1,1 @@
+Peço desculpas, mas o código fornecido parece estar corrompido ou não é legível. Por favor, forneça um trecho de código legível para que eu possa ajudar com a documentação.

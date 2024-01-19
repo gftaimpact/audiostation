@@ -1,0 +1,1 @@
+Para fornecer uma documentação adequada, preciso do código que precisa ser documentado. Por favor, forneça o código que você gostaria que eu documentasse.

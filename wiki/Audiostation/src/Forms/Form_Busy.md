@@ -1,0 +1,1 @@
+Desculpe, mas o código que você forneceu não é legível ou válido. Por favor, forneça um trecho de código válido para que eu possa gerar a documentação.
