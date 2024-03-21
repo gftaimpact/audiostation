@@ -1,0 +1,1 @@
+Lo siento, pero no has proporcionado ningún código para documentar. Por favor, proporciona el código que te gustaría que documentara.

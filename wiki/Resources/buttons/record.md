@@ -1,0 +1,1 @@
+Lo siento, pero su solicitud no contiene un código válido que necesite documentación. Por favor, proporcione un código válido en un lenguaje de programación reconocido para que pueda generar una documentación adecuada.

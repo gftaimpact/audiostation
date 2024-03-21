@@ -1,0 +1,1 @@
+Lo siento, pero el código proporcionado no es legible y parece estar en un formato no reconocido. Por favor, proporcione un fragmento de código en un lenguaje de programación conocido (como Python, Java, JavaScript, etc.) para que pueda documentarlo adecuadamente.
