@@ -1,0 +1,1 @@
+Desculpe, mas não consigo gerar documentação para este código pois ele parece estar corrompido ou é inválido. Por favor, forneça um código válido para que eu possa gerar a documentação corretamente.
